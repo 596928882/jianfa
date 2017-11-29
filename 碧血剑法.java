@@ -1,4 +1,4 @@
 jfjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 ffffffffffffffffffffffffffffffffffffffffffff
-卧槽你闭嘴 李岩
-欲练此功，李岩自宫
+卧槽你闭嘴 吴行
+欲练此功，管英博自宫
